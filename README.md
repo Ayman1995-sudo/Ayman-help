@@ -35,3 +35,6 @@ You can send your support directly to the following wallet address:
 ---
 *Please share this link with your friends and community to help us reach more people. Thank you for your kindness and solidarity.*
 *يرجى مشاركة هذا الرابط مع أصدقائكم ومجتمعكم لمساعدتنا في الوصول لأكبر عدد من الناس. شكراً للطفكم وتضامنكم.*
+![صورة من غزة](IMG-20260519-WA007.jpg)
+![صورة من غزة](IMG-20260519-WA008.jpg)
+![صورة من غزة](IMG-20260519-WA009.jpg)
