@@ -38,3 +38,4 @@ You can send your support directly to the following wallet address:
 ![صورة من غزة](IMG-20260519-WA007.jpg)
 ![صورة من غزة](IMG-20260519-WA008.jpg)
 ![صورة من غزة](IMG-20260519-WA009.jpg)
+IMG-20260519-WA008.jpg)
